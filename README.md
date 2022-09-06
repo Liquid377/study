@@ -1,1 +1,1 @@
-# study
+no way, just learn it
